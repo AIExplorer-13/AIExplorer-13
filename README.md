@@ -2,7 +2,7 @@
 - 👀 I’m interested in Machine Learning and Artificial Intelligence
 - 🌱 I’m currently learning Generative AI
 - 💞️ I’m looking to collaborate on AI Projects
-- 📫 How to reach me govarthanan930@gamail.com
+- 📫 How to reach me -
 - 😄 Pronouns: He
 - ⚡ Fun fact: Life
 
